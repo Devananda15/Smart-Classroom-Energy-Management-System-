@@ -1,1 +1,0 @@
-# Smart-Classroom-Energy-Management-System-
